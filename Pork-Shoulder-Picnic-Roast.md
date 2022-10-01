@@ -18,3 +18,5 @@
 3. Remove meat from oven and cover with foil. Let this rest for 15 minutes. In the mean time, heat oven to 500F.
 4. Remove foil and roast pork again for 20 minutes total at 500F, rotating every 5 minutes.
 5. Let pork rest for 15-20 minutes before cutting and serving.
+
+Link: https://www.ruled.me/crispy-skin-slow-roasted-pork-shoulder/
