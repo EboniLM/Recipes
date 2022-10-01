@@ -1,3 +1,6 @@
+# Crispy Pork Shoulder Picnic Roast
+![pork shoulder](https://cdn.ruled.me/wp-content/uploads/2014/09/porkshoulder.jpg)
+
 ### The Preparation
 
 - 8 lbs. Pork Shoulder
