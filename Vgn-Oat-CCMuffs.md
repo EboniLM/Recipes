@@ -14,7 +14,7 @@
 - 1 teaspoon vanilla extract
 - 2/3 cup chocolate chips
 
-### Directions:
+### Execution:
 1. Preheat oven to 400 degrees. Spray or grease 12 muffin tins.
 2. In a small bowl, combine oats and milk; let stand for 10 minutes.
 3. Fork-beat one egg and set aside.)

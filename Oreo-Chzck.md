@@ -10,7 +10,7 @@
 - 2 large eggs, lightly beaten
 - 1/2 cup sour cream
 
-### Instructions: 
+### Execution: 
 1. Preheat oven to 300°F. Line a standard 12-cup muffin pan with paper cups.
 2. Place one Oreo cookie into each paper cup.
 3. In a medium bowl, beat cream cheese, gradually adding sugar, vanilla, eggs, sour cream, mixing well after each addition.
