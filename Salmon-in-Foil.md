@@ -1,5 +1,6 @@
 # Baked Salmon in Foil :woman_cook:
-![salmon in foil]()
+![salmon in foil](https://user-images.githubusercontent.com/32157169/209902687-c0dddf73-d406-491f-a19e-bcc4e802a129.jpg)
+
 
 ### Preparation (all ingredients to taste)
 - roughly 2lb of boneless salmon 
